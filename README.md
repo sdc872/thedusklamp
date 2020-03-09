@@ -1,2 +1,2 @@
 # thedusklamp
-I donno wat 2 put
+I dunno wat 2 put
